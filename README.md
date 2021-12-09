@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @foomnx
+- 👀 I’m interested in command, and coding
+-i love tu create stuff
